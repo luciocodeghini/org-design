@@ -1,4 +1,4 @@
-###Band 3 - Behaviours & Experience
+### Band 3 - Behaviours & Experience
 
 *Influencer at the industry level*
 
